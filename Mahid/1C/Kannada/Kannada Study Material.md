@@ -1,0 +1,5 @@
+- **Letter pronunciation** -  https://drive.google.com/file/d/1yCfoF784icHXH128VNDUIQnJntZPoujh/view?usp=classroom_web&authuser=0
+- **Kannada Alphabets with sound** - https://www.youtube.com/watch?v=QQubYgdko8g&authuser=0
+- **Word meanings** - https://drive.google.com/file/d/1zx1XYQGVEJMJX4B6QGLbHFvzIR_eYyfx/view?usp=classroom_web&authuser=0
+- **Numbers,Colours,Fruits** https://drive.google.com/file/d/15NjEg5kgazp3JbX2qPjlUHhTOfEyvSkk/view?usp=classroom_web&authuser=0
+- **Vocabulary** - https://drive.google.com/file/d/1-gOVNTV-bL8xsW6LdqCydyTsDR5RSsKb/view?usp=classroom_web&authuser=0
