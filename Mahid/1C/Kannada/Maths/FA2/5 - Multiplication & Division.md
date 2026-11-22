@@ -11,7 +11,6 @@
 
 # Homework-7
 `Oct 30`
-#Incomplete 
 #Homework
 - **Mental** **Math Students Book  
                Unit 4: Addition and Subtraction**   
@@ -31,7 +30,6 @@
 -----
 # Notebook Work - Multiplication Tables
 `Nov 5`
-#Incomplete 
 #ClassWork 
 - https://drive.google.com/file/d/12r8r1-ih4pqKLkD0ZIy5yjZ4yklahY_p/view?usp=classroom_web&authuser=0
 
@@ -43,9 +41,9 @@
 #Homework 
 
 **Math's workbook  
-Page-167 Q2  
-Page-169 Q6  
-Page-171 Q10
+Page-167 Q2  - pending
+Page-169 Q6  - done
+Page-171 Q10 -pending
 
 - Memorize **the multiplication tables of 1, 2, 5, 10
 
@@ -56,8 +54,8 @@ Page-171 Q10
 #Incomplete 
 #ClassWork
 
-- https://drive.google.com/file/d/1ZguSNpjGeiCqmGgd3KtWCHd1Nd1qe-IT/view?usp=classroom_web&authuser=0
-- https://drive.google.com/file/d/13BIVgFOUJmO_v82w4b85QNiaiFKaTSRW/view?usp=classroom_web&authuser=0
+- https://drive.google.com/file/d/1ZguSNpjGeiCqmGgd3KtWCHd1Nd1qe-IT/view?usp=classroom_web&authuser=0 - done
+- https://drive.google.com/file/d/13BIVgFOUJmO_v82w4b85QNiaiFKaTSRW/view?usp=classroom_web&authuser=0 - REDO
 
 ---
 # Concept of Division
@@ -99,7 +97,7 @@ Page-107, (Q8 b, Q9)**
 `Nov 20`
 #Incomplete 
 #ClassWork 
- - https://drive.google.com/file/d/1Mp5Nhi3daVWyMwI2QoNzJrPWJsLhRxWd/view?usp=classroom_web&authuser=0
+ - https://drive.google.com/file/d/1Mp5Nhi3daVWyMwI2QoNzJrPWJsLhRxWd/view?usp=classroom_web&authuser=0  - Done
  - https://drive.google.com/file/d/1t3M5BtOmH6xNsqcRADvhbAnWOfE7mkGU/view?usp=classroom_web&authuser=0
 
 ---

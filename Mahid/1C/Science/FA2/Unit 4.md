@@ -15,10 +15,10 @@ Dear students, kindly complete page Unit 4.1
 
 - 47 in your workbook.
 - https://drive.google.com/file/d/1h6s2BnWyJyqxtiMqygu0Rvw57ZAJaJU-/view?usp=classroom_web&authuser=0
-- https://drive.google.com/file/d/1ivR4kfw-eTM6Arl6HegDwdzwtyhmL2gy/view?usp=classroom_web&authuser=0
+- https://drive.google.com/file/d/1ivR4kfw-eTM6Arl6HegDwdzwtyhmL2gy/view?usp=classroom_web&authuser=0 - Done
 
 ## Notebook 
-https://drive.google.com/file/d/1yis53QxT3Q9XWW0sCmRDW-PViEDwxokz/view?usp=classroom_web&authuser=0
+https://drive.google.com/file/d/1yis53QxT3Q9XWW0sCmRDW-PViEDwxokz/view?usp=classroom_web&authuser=0 - Done
 
 ---
 
@@ -36,15 +36,13 @@ Submit the completed work on Monday.
 
 # # 4.2 Notes
 `Oct 30`
-#Incomplete 
-#Homework 
+#ClassWork 
 - https://drive.google.com/file/d/1UZZwmIu8108FjWmo5Uor8bYI0ckp1yry/view?usp=classroom_web&authuser=0
 - https://drive.google.com/file/d/1TrLrlCQeh8MCZNChUB0VLX8ZUxzWqqVZ/view?usp=classroom_web&authuser=0
 ---
 
 # # 4.2 Workbook
 `Nov 2`
-#Incomplete 
 #ClassWork 
 - https://drive.google.com/file/d/1IFwvwdh5s1I8QMMezGHzQDu2gfNQnD3B/view?usp=classroom_web&authuser=0
 - https://drive.google.com/file/d/1s8cT8figSS4qjdRwF_iwKL--gu_PNMag/view?usp=classroom_web&authuser=0
@@ -68,8 +66,8 @@ https://drive.google.com/file/d/1JoqqLBRnIj_CjqLX3liDGOrJ6WTRqkg-/view?usp=class
 #Incomplete 
 #ClassWork  
 notebook work and workbook answer key of unit 4.3. kindly go through it carefully and complete the missed works if any.
-- https://drive.google.com/file/d/1hC5OO7aXUTFE2INkkhYgGjGdYYpEsDUB/view?usp=classroom_web&authuser=0
-- https://drive.google.com/file/d/1TBeb3Q0BbQmc8tsl9dsOo1zYutVtZRGg/view?usp=classroom_web&authuser=0
+- https://drive.google.com/file/d/1hC5OO7aXUTFE2INkkhYgGjGdYYpEsDUB/view?usp=classroom_web&authuser=0 - Done
+- https://drive.google.com/file/d/1TBeb3Q0BbQmc8tsl9dsOo1zYutVtZRGg/view?usp=classroom_web&authuser=0 - 
 ---
 # 4.4 Keeping healthy
 `Nov 16`

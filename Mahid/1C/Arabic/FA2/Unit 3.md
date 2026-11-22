@@ -20,4 +20,3 @@ Please make sure that they write the Translation in there notebook
 https://drive.google.com/file/d/1DxhzwudOQqIeUEw3UK8CIfA1GbUoO6mu/view?authuser=0&usp=classroom_web
 
 ---
-											

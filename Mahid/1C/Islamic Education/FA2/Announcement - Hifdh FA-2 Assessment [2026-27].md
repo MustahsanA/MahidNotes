@@ -1,4 +1,5 @@
-Dear Parents,  
+/.'?]
+'/;\]+''''''''''''' mn k, ,.llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllDear Parents,  
 We hope you are doing well, In Shaa Allah.  
   
 Please be advised Hifdh assessment [FA-2] for the academic Year 2026-27 has been scheduled from 7th December to 11th December 2026. The assessment will be conducted within the first 2 to 3/4 days during Hifdh classes that week. Post assessment completion, we will resume regular Hifdh classes, In Sha Allah.  
